@@ -1,2 +1,2 @@
-# GIAIC-Q3-ASSGNMENTS - Monday 2 - 5
+# GIAIC-Q3-Assignments - Monday 2 - 5
  
